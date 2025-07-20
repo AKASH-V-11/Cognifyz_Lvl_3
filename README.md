@@ -63,6 +63,16 @@ Google Colab
 -
 This project is part of the Cognifyz Technologies Data Analysis Internship (Level 3). It focuses on applying advanced data analysis and visualization to extract insights from a real-world restaurant dataset.
 
+🔗 Connect with Me
+--
+Feel free to connect or view my internship posts on LinkedIn :https://www.linkedin.com/in/akash-v-9249b2296?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+👉 Tag used:
+-
+#cognifyz #cognifyzTech #cognifyzTechnologies
+
+
+
 
 Hashtags:
 -
