@@ -72,7 +72,7 @@ Feel free to connect or view my internship posts on LinkedIn :https://www.linked
 #cognifyz #cognifyzTech #cognifyzTechnologies 
 
 ## 🎥💻VIDEO :
--
+
 https://www.linkedin.com/posts/akash-v-9249b2296_cognifyztechnologies-cognifyz-cognifyztech-activity-7353065213576859648-imql?utm_source=share&utm_medium=member_android&rcm=ACoAAEex2awBF83VC-fxl3uuiPf2qnkwSc8A5_0
 
 
